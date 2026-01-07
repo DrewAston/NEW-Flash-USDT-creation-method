@@ -1,1 +1,1 @@
-# NEW-Flash-USDT-creation-method
+# NEW Flash USDT creation method
